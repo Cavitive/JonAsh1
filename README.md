@@ -4,7 +4,7 @@
 
 ### I'm Quandale Dingle, I do trampoline and tumbling. I do some sick flips. I also sweat on rocket league despite being really bad at the game.
 
-![Quandale]([https://soundcloud.com/user-716329052/a-message-to-quandale-dingle](https://i1.sndcdn.com/artworks-UNIzZyEVtpOcWnBi-JaXb6A-t500x500.jpg))
+![Quandale](https://i.redd.it/zmnplqdtp8z81.jpg)
 
 ###### I want to learn python in computer science
 
